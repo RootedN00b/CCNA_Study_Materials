@@ -5,4 +5,3 @@ A lot of the CCNA exam questions come from practice not really what you studied
 Enjoy your networking journey!!!
 
 rootedn00b...
-https://claude.ai/artifact/JNHuiuyt4owjmYR2ix9SXg
